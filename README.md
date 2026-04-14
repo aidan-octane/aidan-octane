@@ -1,1 +1,1 @@
-please do not look for / through my personal accounts
+this is a personal account
